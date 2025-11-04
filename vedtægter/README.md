@@ -1,1 +1,1 @@
-Her lægge vedtægter og referat
+Her lægger vedtægter og referat
